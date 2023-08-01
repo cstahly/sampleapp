@@ -1,0 +1,1 @@
+There are two passwords in this APK, what are they?
